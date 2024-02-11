@@ -1,3 +1,0 @@
-# Shmoozy-McBoozey-FF-League
-
-Testing 1 2 3....
